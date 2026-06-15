@@ -12,4 +12,10 @@ Estou usando o GitHub para aprender e guardar meus projetos! 💻🚀
 * 🎧 Meu hobby favorito é escutar música.
 
 ---
+
+### 📬 Contato:
+* 📸 Instagram: https://instagram.com\gih_gabbi_pontelli
+* 📧 E-mail: pontelligiovana@email.com
+
+---
 *Seja bem-vindo ao meu perfil!* 😊
